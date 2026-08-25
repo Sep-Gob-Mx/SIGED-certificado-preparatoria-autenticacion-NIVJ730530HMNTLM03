@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-NIVJ730530HMNTLM03
+NIVJ730530HMNTLM03
